@@ -28,6 +28,6 @@ Vrinda Store wants to create an annual sales report for 2022.so that, Vrinda can
 
 💱 Amazon,Flipkart and Myntra channels are max contributing (80.45%).
 
-Final Conclusion :---
+# Final Conclusion :
 
-❤️❤️❤️ Target women customers of age group (30-40 yrs) living in Maharashtra,Karnataka and Uttar Pradesh by Showing ads/offers/coupons available on Amazon,Flipkart and Myntra.
+Target women customers of age group (30-40 yrs) living in Maharashtra,Karnataka and Uttar Pradesh by Showing ads/offers/coupons available on Amazon,Flipkart and Myntra.
